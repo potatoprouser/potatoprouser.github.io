@@ -1,38 +1,21 @@
-## Cutest animals caught on camera
----
-![alt text](https://images.unsplash.com/photo-1560114928-40f1f1eb26a0?q=80&w=1000&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Mnx8Y3V0ZSUyMGFuaW1hbHxlbnwwfHwwfHx8MA%3D%3D)
----
-# Top 10 Cutest animal pictures
----
-
-## 1.Dog caught hugging a cat while sleeping 
+## Guitar Tips for begginers
 
 ---
- ![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSpi0NgjpQQP1SYPc4OontNBPlJpLbenZLQow&usqp=CAU)
+**The Guitar is a famous instrument with 6 strings. You'll hear it in most of musics since it is commonly used and played.**
 
 ---
 
-## 2. Monkey caught eating a leaf
+## The Parts of the Guitar 
 
----
-![alt text](https://i.pinimg.com/736x/cb/d9/d6/cbd9d654020e6eed90ff356a8ea7c60a.jpg)
-
----
-
-## 3. Mama Elephant and Baby Elephant
+![alt text](https://hellomusictheory.com/wp-content/uploads/2022/06/parts-of-an-acoustic-guitar.png)
 
 ---
 
-![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRSPuH-7n87g_jbn5pkGN_CI_8qyGhaDlxslA&usqp=CAU)
+**Over all there are 10 parts of the guitars shown in the Video, Note that Electric guitars and Acoustic have different parts since Electric have a bridge and a cable.**
 
 ---
 
-## 4. Dog Bonnding with Owner
+## Some basic music theory
 
----
+--- 
 
-![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSJS_98OdNJTTb-2CryISfjmqZp_Z--9yuhoA&usqp=CAU)
-
----
-
-## 5. 
