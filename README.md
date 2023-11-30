@@ -6,6 +6,7 @@
 ---
 **1.**
 Dog caught hugging a cat while sleeping 
+
 ---
  ![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSpi0NgjpQQP1SYPc4OontNBPlJpLbenZLQow&usqp=CAU)
 
@@ -13,6 +14,7 @@ Dog caught hugging a cat while sleeping
 
 **2.**
 Monkey caught eating a leaf
+
 ---
 ![alt text](https://i.pinimg.com/736x/cb/d9/d6/cbd9d654020e6eed90ff356a8ea7c60a.jpg)
 
@@ -20,6 +22,7 @@ Monkey caught eating a leaf
 
 **3.**
 Mama Elephant and Baby Elephant
+
 ---
 
 ![alt text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRSPuH-7n87g_jbn5pkGN_CI_8qyGhaDlxslA&usqp=CAU)
