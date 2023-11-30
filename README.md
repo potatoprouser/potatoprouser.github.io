@@ -1,5 +1,4 @@
-# Barney the last dinasour 
-![alt text](https://static.wikia.nocookie.net/puppet/images/c/cb/Barney_personajes_barney.png/revision/latest?cb=20210622224817)
-# Barney The last dinasour
-Dinasours have been extinct for millions of years now because of the asteriod that hitted earth. But there is still one Dinasour 
-that
+# Reason why Eren did not deserve to die (real)
+**Eren did nothing Wrong, therefore He did not desreve to die**
+![alt text](https://i.kym-cdn.com/photos/images/original/000/763/390/7c0.png)
+-----------------------------------------------------------------------------
